@@ -10,3 +10,7 @@ something u wanna know
 
 *thanks*
 
+
+## read this
+
+subscibe my youtube channel
